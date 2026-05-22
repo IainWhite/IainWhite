@@ -8,5 +8,5 @@ Technology Consultant, Fractional CTO and Agile Coach based in Brisbane, Austral
 - [Fractional Chief Technology Officer](https://fractionalchieftechnologyofficer.com/)
 - [Tech Consulting](https://techconsulting.com.au/)
 - [The Calm Tech Leader](https://thecalmtechleader.com/)
-- [Iain White Portfolio]([https://iainwhite.com.au/)
+- [Iain White Portfolio](https://iainwhite.com.au/)
 - [Book a Free Consultation](https://whiteinternet.com/free-consultation/)
